@@ -752,3 +752,160 @@ The Spirit not only gave Bezalel personal skill but also enabled him and Aholiab
 
 **Context:** After describing Israel’s enemies being defeated, God promises permanent restoration and renewed covenant fellowship.
 
+---
+
+Below are the **remaining passages** from your original list. Repeated passages already covered—such as Isaiah 32:15, Isaiah 44:3, Isaiah 61:1–3, and Ezekiel 39:29—are not reproduced again.
+
+## Part 6 — The Judges, Samson and Daniel
+
+### 1. The Spirit and Israel’s Judges
+
+During the period of the Judges, Israel repeatedly turned away from God, suffered oppression, cried out for help, and was rescued through leaders raised up by God. The Spirit of the LORD empowered particular judges for their appointed tasks.
+
+### Judges 3:10 — Othniel
+
+> “And the Spirit of the LORD came upon him, and he judged Israel, and went out to war: and the LORD delivered Chushan-rishathaim king of Mesopotamia into his hand; and his hand prevailed against Chushan-rishathaim.”
+
+**Context:** After Israel turned to idolatry, God allowed Chushan-rishathaim to oppress the nation for eight years. When Israel cried to God, He raised up Othniel, Caleb’s younger relative, as its deliverer.
+
+---
+
+### Judges 6:34 — Gideon
+
+> “But the Spirit of the LORD came upon Gideon, and he blew a trumpet; and Abiezer was gathered after him.”
+
+**Context:** The Midianites had oppressed Israel for seven years. God called Gideon—who initially considered himself weak and insignificant—to deliver the nation. When the enemy gathered for battle, the Spirit came upon Gideon.
+
+This empowerment did not mean that Gideon became incapable of fear or error. His later requests for signs show that he still struggled to trust fully.
+
+---
+
+### Judges 11:29
+
+> “Then the Spirit of the LORD came upon Jephthah, and he passed over Gilead, and Manasseh, and passed over Mizpeh of Gilead, and from Mizpeh of Gilead he passed over unto the children of Ammon.”
+
+**Context:** The Ammonites threatened Israel, and the elders of Gilead asked Jephthah to lead them. The Spirit empowered him as he prepared to confront the enemy.
+
+---
+
+## 2. Samson and the Spirit of the LORD
+
+Samson was set apart as a Nazirite from birth and called to begin delivering Israel from the Philistines. His extraordinary strength came from God’s Spirit, not merely from his hair or natural physical power.
+
+### Judges 13:25
+
+> “And the Spirit of the LORD began to move him at times in the camp of Dan between Zorah and Eshtaol.”
+
+**Context:** An angel had announced Samson’s birth and calling before he was conceived. As Samson grew, God blessed him, and the Spirit began stirring him toward his mission.
+
+---
+
+### Judges 14:6
+
+> “And the Spirit of the LORD came mightily upon him, and he rent him as he would have rent a kid, and he had nothing in his hand: but he told not his father or his mother what he had done.”
+
+**Context:** While Samson was traveling toward Timnath, a young lion attacked him. Samson killed it with his bare hands.
+
+---
+
+### Judges 14:19
+
+> “And the Spirit of the LORD came upon him, and he went down to Ashkelon, and slew thirty men of them, and took their spoil, and gave change of garments unto them which expounded the riddle. And his anger was kindled, and he went up to his father’s house.”
+
+**Context:** Samson’s Philistine wedding companions threatened his wife and pressured her into revealing the answer to his riddle. Samson then went to Ashkelon to obtain the garments he owed them.
+
+---
+
+### Judges 15:14
+
+> “And when he came unto Lehi, the Philistines shouted against him: and the Spirit of the LORD came mightily upon him, and the cords that were upon his arms became as flax that was burnt with fire, and his bands loosed from off his hands.”
+
+**Context:** The men of Judah bound Samson and handed him over to the Philistines to avoid further conflict. When the Philistines approached, the Spirit came powerfully upon him.
+
+---
+
+## 3. Daniel and Pagan Kings
+
+### Daniel 4:8–9
+
+> **8** “But at the last Daniel came in before me, whose name was Belteshazzar, according to the name of my god, and in whom is the spirit of the holy gods: and before him I told the dream, saying,  
+> **9** O Belteshazzar, master of the magicians, because I know that the spirit of the holy gods is in thee, and no secret troubleth thee, tell me the visions of my dream that I have seen, and the interpretation thereof.”
+
+**Context:** King Nebuchadnezzar had dreamed of an enormous tree that was cut down, leaving only its stump. Babylon’s wise men could not explain the dream, so Daniel was brought before the king.
+
+---
+
+### Daniel 4:18
+
+> “This dream I king Nebuchadnezzar have seen. Now thou, O Belteshazzar, declare the interpretation thereof, forasmuch as all the wise men of my kingdom are not able to make known unto me the interpretation: but thou art able; for the spirit of the holy gods is in thee.”
+
+**Context:** Nebuchadnezzar finished describing his dream and asked Daniel to interpret it. The tree represented the king himself, who would be humbled because of his pride.
+
+---
+
+### Daniel 5:11–12
+
+> **11** “There is a man in thy kingdom, in whom is the spirit of the holy gods; and in the days of thy father light and understanding and wisdom, like the wisdom of the gods, was found in him; whom the king Nebuchadnezzar thy father, the king, I say, thy father, made master of the magicians, astrologers, Chaldeans, and soothsayers;  
+> **12** Forasmuch as an excellent spirit, and knowledge, and understanding, interpreting of dreams, and shewing of hard sentences, and dissolving of doubts, were found in the same Daniel, whom the king named Belteshazzar: now let Daniel be called, and he will shew the interpretation.”
+
+**Context:** During Belshazzar’s feast, a mysterious hand wrote on the palace wall. When the king’s wise men could not interpret the writing, the queen recommended Daniel.
+
+---
+
+### Daniel 5:13–14
+
+> **13** “Then was Daniel brought in before the king. And the king spake and said unto Daniel, Art thou that Daniel, which art of the children of the captivity of Judah, whom the king my father brought out of Jewry?  
+> **14** I have even heard of thee, that the spirit of the gods is in thee, and that light and understanding and excellent wisdom is found in thee.”
+
+**Context:** Belshazzar summoned Daniel to interpret the writing on the wall. Daniel announced that the king had been judged for his pride and desecration of the Temple vessels.
+
+---
+
+### Daniel 6:3
+
+> “Then this Daniel was preferred above the presidents and princes, because an excellent spirit was in him; and the king thought to set him over the whole realm.”
+
+**Context:** Under Darius, Daniel distinguished himself from the other officials. Their jealousy led them to manipulate the king into issuing the decree that resulted in Daniel’s being thrown into the lions’ den.
+
+---
+
+## Part 7 - Promised Outpouring
+
+## 1. Joel’s Promise
+
+### Joel 2:28–29
+
+> **28** “And it shall come to pass afterward, that I will pour out my spirit upon all flesh; and your sons and your daughters shall prophesy, your old men shall dream dreams, your young men shall see visions:  
+> **29** And also upon the servants and upon the handmaids in those days will I pour out my spirit.”
+
+**Context:** Joel called Judah to repent after a devastating locust plague and warned of the coming day of the LORD. Following repentance and restoration, God promised an extraordinary outpouring of His Spirit. In Acts 2, Peter quoted this prophecy to explain the coming of the Holy Spirit at Pentecost. The Spirit was being poured out upon the new-covenant community.
+
+---
+
+### Joel 2:30–32
+
+> **30** “And I will shew wonders in the heavens and in the earth, blood, and fire, and pillars of smoke.  
+> **31** The sun shall be turned into darkness, and the moon into blood, before the great and the terrible day of the LORD come.  
+> **32** And it shall come to pass, that whosoever shall call on the name of the LORD shall be delivered: for in mount Zion and in Jerusalem shall be deliverance, as the LORD hath said, and in the remnant whom the LORD shall call.”
+
+**Context:** The promised outpouring of the Spirit is placed within the larger expectation of the day of the LORD—a time of divine intervention, judgment, and salvation.
+
+---
+
+## 2. Zechariah and the Spirit
+
+### Zechariah 4:6
+
+> “Then he answered and spake unto me, saying, This is the word of the LORD unto Zerubbabel, saying, Not by might, nor by power, but by my spirit, saith the LORD of hosts.”
+
+**Context:** After the Jewish exiles returned from Babylon, Zerubbabel was responsible for leading the rebuilding of the Temple. The people faced opposition, discouragement, and limited resources.
+
+---
+
+### Zechariah 12:10
+
+> “And I will pour upon the house of David, and upon the inhabitants of Jerusalem, the spirit of grace and of supplications: and they shall look upon me whom they have pierced, and they shall mourn for him, as one mourneth for his only son, and shall be in bitterness for him, as one that is in bitterness for his firstborn.”
+
+**Context:** Zechariah describes a future time when God will defend Jerusalem and produce profound repentance among its inhabitants.
+
+---
